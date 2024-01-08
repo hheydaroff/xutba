@@ -1,13 +1,15 @@
 ---
 author: haci_shahin
 title: Cümə xütbəsi -  Vəhdət günümüzün tələbi (01.12.2017) 
-date: 2017-12-01
+date: 2024-01-05
 tags: [' Vehdet Gunumuzun Telebi']
 categories: ['Cume Xutbesi']
 ---
 {{< youtube OnD0SEAjjt0 >}}
 
-Bismillahirrahmanirrahim Alhamdulillah Rabbil Alamin Və əs-salatu və əs-salamu ala rəsulillahi l-əmin Həbib-i İlahina və təbib-i nüfusina Əbil Qasim el-Mustafa Muhammad Allahumma salli ala Muhammad və ala Ali Muhammad Və ala Ali Əmir el-Müminin və ala Fatımət el-Zəhra və ala el-Həsəni və el-Husayn və Ali ibn el-Husayn və Muhammad ibn Ali və Cəafar ibn Muhammad və Musa ibn Cəafar və Ali ibn Musa və Muhammad ibn Ali və Ali ibn Muhammad və Əl-Həsəni ibn Ali və Əl-Hüccət el-Qaim el-Məhdi Allahumma salli ala Muhammad və Ali Muhammad Allahumma salli ala cəmiyyəl ənbiyyəi və əl-mürsəliyin və əl-şühədəi və əl-siddiqiyyin Allahumma qıfirli l-mümininə və l-müminat və l-müsliminə və l-müslimat Əl-əhya'i minhum və l-əmvat Usikum və nəfsi bi təqvə Allah. Sizə və özümə İlahi təqvaya Riayət etməyi tövsiyə edirəm [TODO - fix the wording].
+Əlhəmdulillahi rəbbil aləmin Vəssəlatu vəssəlamu əla səyyidina və nəbiyyina Əbil-qasimi Mustafa Muhammad. allahummə salli əla muhəmmədin və ali muhəmmədş
+ Və ala Ali Əmir el-Müminin və ala Fatımət el-Zəhra və ala el-Həsəni və el-Husayn və Ali ibn el-Husayn və Muhammad ibn Ali və Cəafar ibn Muhammad və Musa ibn Cəafar və Ali ibn Musa və Muhammad ibn Ali və Ali ibn Muhammad və Əl-Həsəni ibn Ali və Əl-Hüccət el-Qaim el-Məhdi Allahumma salli ala Muhammad və Ali Muhammad Allahumma salli ala cəmiyyəl ənbiyyəi və əl-mürsəliyin və əl-şühədəi və əl-siddiqiyyin Allahumma qıfirli l-mümininə və l-müminat və l-müsliminə və l-müslimat Əl-əhya'i minhum və l-əmvat.
+Usikum və nəfsi bi təqvallah. Sizə və özümə İlahi təqvaya riayət etməyi tövsiyə edirəm [TODO - fix the wording].
  
 Bu günlər vəhdət həftəsi başlanır və bir neçə cümlə, vaxtınızı bugün çox almayacağam, bir neçə dəqiqə vəhdət mövzusuna sadəcə işarə eləmək istəyirəm. Ümumiyyətlə, dinin gəlişinin məqsədi, deyə bilərik ki, insanlar arasında vəhdəti yaratmaqdır, insanları birləşdirməkdir. Və Quran birlik konsepsiyasıdır, insanları birləşdirən bir ipdir. Və ətəsimu bi həblilləhi cəmiəv və lə təfərraqu. Hamınız Allahın ipindən möhkəm yapışın və səpələnməyin, dağılışmayın, parçalanmayın. Quranın əsas misiyası birlik və vəhdətdir. 
   
