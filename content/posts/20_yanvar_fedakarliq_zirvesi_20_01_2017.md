@@ -4,7 +4,7 @@ title: Cümə xütbəsi -  20 Yanvar - fədakarlıq zirvəsi (20.01.2017)
 date: 2024-01-08
 tags: [' 20 yanvar']
 categories: ['Cume Xutbesi']
-draft: true
+draft: false
 ---
 {{< youtube bTMNxyfbIlE >}}
 
