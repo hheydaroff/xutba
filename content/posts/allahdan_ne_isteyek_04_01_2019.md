@@ -4,7 +4,7 @@ title: Cümə xütbəsi - Allahdan nə istəyək (04.01.2019)
 date: 2024-01-10
 tags: [' Allahdan nə istəyək']
 categories: ['Cume Xutbesi']
-draft: true
+draft: false
 ---
 {{< youtube GNEuVhMGurQ >}}
 
