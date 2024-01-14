@@ -1,7 +1,7 @@
 ---
 author: haci_shahin
 title: Cümə xütbəsi - Ümidsizliyin əlacı - 1 (11.01.2019)
-date: 2024-01-15
+date: 2024-01-14
 tags: [' Umidsizliyin Elaci']
 categories: ['Cume Xutbesi']
 draft: false
