@@ -1,0 +1,54 @@
+---
+author: haci_shahin
+title: Cümə xütbəsi - Ümidsizliyin əlacı - 1 (11.01.2019)
+date: 2024-01-15
+tags: [' Umidsizliyin Elaci']
+categories: ['Cume Xutbesi']
+draft: false
+---
+{{< youtube z3m3jK2GdrI >}}
+
+Bismillahirrahmanirrahim. Alhamdulillah Rabbil Alamin. Və salatu və salamu ala Rasulillahi l-Amin Həbibi İlahina və təbibi nüfusina Əbil Qasim el-Mustafa Muhammad (Allahumma salli ala Muhammad Ali Muhammad). Və əla əhli beytihit-tayyibinət-tahirinəl məsuminəl mukərrəmin. Və əla Əliyyin əmiril muminin, və əla Fatiməti Zəhra, və ələl Həsəni və Huseyn, və Əli ibn Huseyn, və Muhəmməd ibn Ali, və Cafər ibn Muhəmməd, və Musa ibn Cafər, və Əli ibn Musa, və Muhammad ibn Əli, və Əli ibn Muhəmməd, vəl Həsən ibn Əli, və Huccətül qaimu Mehdi. Allahun məsəlli əla cəmiəl ənviya və mursəlin və şühədai və siddiqin. Əlla hüm məğfir lil mömininən vəl möminat, vəl müsliminən vəl müslimat, əl-əhya'i minhum və'l-əmvad, usikum və nəfsi bi təqvallah. [TODO- correction]
+Sizə və özümə İlahi təqvaya riayət etməyi tövsiyə edirəm. 
+
+Qısa olaraq, ikinci xütbəni... Keçən həftə dua haqqında danışdıq, Allahdan nə istəməliyik dedik. Allahdan nə istəməliyik mövzusuna yaxın mövzu əvvəla budur ki, biz ümumiyyətlə ümidvar olmalıyıq əvvəl. Ümidvar olmaq önəmli məsələdir və günümüzdə insanları təhdid edən ən əsas problemlərdən biri də məyusluqdur. Çox yayılıb, hamının içində bir ümidsizlik olur və şeytanın ən böyük silahlarından biri məyusluqdur. Bir insan məyus oldusa, inkişafı mümkünsüzdür. Həyatdan məyus oldu, müxtəlif səbəblərdən adamlar məyus olur, naumid olur, ümidsizləşir və çox böyük bir bəladır bu insan üçün. Təhlükəli haldır. 
+
+Bu ikinci xütbədə biz adətən hədis və rəvayət üzərindən danışırıq. Ya Quran ayə, hədis və rəvayət üzərindən. Ona görə də mən elə bənd-bənd sadəcə ayələrə toxunmaq istəyirəm ki, həm vaxtınızı almayım, həm də mən də tələsirəm ki, cümə xütbəsindən sonra vacib bir işim var deyə getməliyəm. Çalışacağam, çox yığcam danışım. 
+
+Əvvəla insan bilməlidir məyus olmamaq üçün ki, bir hədəf üçün yaranıb və Allahın nəzarəti altındadır. Puç, boş-boşuna yaranmıyıb. Hədəfini bilən insan məyus olmaz. Hədəfi bilməməzlikdəndir ki, biz 100 dənə hədəf müəyyən eləyirik, ruhu 50 yerə parçalayırıq deyə onların da bəzilərinə çatmayanda məyusluq gəlir. Yaradılışın bir hədəfi var və o da Allahla görüşdür. 
+
+Allah Quranda buyurur ki, Va Ma Khalaqna As-Samavati Va Al-Arda Va Ma Baynahuma Batilaan. Biz boşu-boşuna yaratmadıq, göyləri və yeri və arasında olanları boşu-boşuna, oyun oynayacaq, üçün yaratmadıq. Afahasibtum Annama Khalaqnakum Abasa?! Suallardır. Bu sualların cavabını tapsa insan aram olur. Elə düşünürsünüz, sizi boş-boşuna yaratdıq, puç yaratdıq, hədər yaratdıq, əbəs yaratdıq?! Yaratdıq məqsəd üçün və hər an nəzərimiz də üstünüzdədir. 
+
+Inna rabbaka labilmirsad. Allahın pusquda dayanıb, görür, hesablayır, hər şeyi görür. Camaat görməsə də görməsin. Deyir əlimin duzu yoxdur, məyus oturub qanı qara. Ömrümü filan kəsə sərf elədim, nankörlük elədi. Elədi, elədi. Famaiy ya'mal mithqala zarratin khai raiy-yarah. Qayıdıram birinci moizəyə. Qaydasıdır həyatın. Mütləq görəcəksən bu nankorluğu. Kimlərdənsə mütləq görəcəksən. Çox da özünü üzmə. Hesablayan var. Kim zərrə ağırlığında yaxşı iş görübsə, onu qarşısında görəcək. Əvəzini ondan istə. 
+
+Dünya haqqında ərəz sözün işlədir. Ərazəl həyatı dünya. Əraz bilirsiniz nədir? Keçici bir şeyə deyirlər. Uçub gedən şeyə. Ətir vurursan e, uçdu getdi bir saatdan sonra. Ətrin iyi qalmadı üstündə. Dünyanı belə deyir. Deyir, məqsədlərini və istəklərini buna bağlama ki, məyus olmayasan. Onsuz da uçub gedəcək. Uçub getmək üçün yaranıb. Uçub gedən üçün niyə... Əvvəldən, məsələn, ətir vuranda, bilirsən, 5 saatdan sonra, məsələn, yaxşısı olsa, bilmirəm, neçə saatdən sonra o olmayacaq. O iyi gəlməyəcək. Oturub matəm eləmirsən, vay, ətir niyə getdi? Bilirdin ki, gedəcək. Allah da deyir ki, dünya belədir. Gedəcək və istəklərini buna bağlama. 
+
+Hesablayan var. Bilsən ki hesablayan var, başqa cür yaşayarsan. Nəyə görə, məsələn... Bir alim belə misal çəkirdi. Deyir ki, mübahisə edirlər, mən suyun altında filan qədər qala bilərəm. Məsələn, bir dəqiqə, bilmirəm, məsələn yarım dəqiqə. O deyir, qalammazsən, baş vur, baş vur baxaq. Girir suya, nəfəsini çəkir, dayanır. Bayırda sayırlar, 1, 2, 3, 4, 5, 6, 7 sayılırlar. O sayıldıqlarını bildiyinə görə dayanır, bilməsə dayanmaz. Biz rükuda, səcdədə bilsək ki, sayırlar, Allah deyir, 1, 2, 3, 4, 5, mələklər sayır, nə qədər qalacaq? Onda belə eləmərik, sübhənallah sübhənallah deyib qalxmarıq. Bilsək ki, sayırlar, əməlin keyfiyyəti başqa olar, əməlin tamamilə fərqli olar keyfiyyəti. 
+
+Bilsək ki, hər şey sayılır, hesablanır, baxılır, onda məyusluğa ehtiyac olmaz. Bir fəqirə kömək elədim, sonra məlum oldu ki, düz demirmiş. Bəzi adamlar olur da indi bizə gəlib müraciət eləyirlər, mən dostlara deyirəm ki... Deyir ona kömək eləmək lazım  deyil, yalan danışır o. Mən deyirəm, onu biz müctehid seçmirik özümüzə ki, o düz danışsın, ya pişnəmaz qoymayacağıq. O indi yalan da danışa bilər, düz də danışa bilər. Hər bir halda ehtiyacı var ki, gəlib, imkanımız var eləyək, yoxdur eləməyək. Daha yaxşı olar yalan danışmasın. Düz desin sözünü, dərdi nədir onu desin. 
+
+Biri deyir, nəvəmi məktəbə aparmalıyam, maraqlanırsan nəvəsi yoxdur ümumiyyətlə. Biri deyir, o yadınızdadır deyir üç dəfə gəldi ilin ərzində ki, qoca kişidir də, müctehid, aldadaram başını, üç dəfə bir il ərzində gəldi. Bir dəfə gəldi ki, həyat yoldaşım xəstəxanadadır, uşağım olacaq, mənə pul lazımdır, verdi. Neçə ay keçdi, dedi ki, qoca kişidir də, nə bilir, yenə getdi, iki aydan sonra, üç aydan sonra, həyat yoldaşım xəstəxanadadır, uşağım olacaq, bu, yenə verdi. Üçüncü dəfə getdi, yenə verdi, bu da elə bilir, bu qoca kişidir başa düşmür, bu da bilir ki, onu aldadır, verir, amma axırda bir söz də dedi ki, yəni, elə bilmə ki, mən anlamıram. Dedi, ala bunu, amma həyat yoldaşının qədrini bil, hər xanımın işi deyil, ildə üç dənə uşaq dünyaya gətirə, yəni, hər adamın işi deyil. 
+
+İnsan bilsə ki, hesablanır, insan bilsə ki, sayılır, insan bilsə ki, Allahın nəzəri var, onda məyusluğa gedib çıxmaz. Bu da bir səbəb. İkincisi budur ki, yaxşı işinə on əvəz verir, və yaxud da deyir, hesabsız əvəz verir. falahu ashru amsalaha, bir yaxşı işə on əvəz verir, amma pis işə nə deyir? Deyir, va man ja'a bis-sayyi'ati fa la yujza illa mislaha. Səhv işinə isə əvəzi verilir, bir dənə. Bir günaha bir əvəz, bir savaba ən azı on əvəz, ən azı, artıq da verir. 
+
+Bunlar hamısı səbəbdir ki, insan məyus olmasın. İnsan başa düşsün ki, əvvəla hədəfi var. İkincisi Allahın nəzarəti var. Üçüncüsü Allah hər şeyi hesablayır, sayır, qeyd eləyir. Dördüncüsü, yaxşı işə çox əvəz verir, pis işə az əvəz verir. Və axrıncısı nədir? Axrıncısı da ki, xətadır elədin, narahat olma. Tövbə imkanı var. Tövbə, birinci xütbədə dediyim kimi, Allahın rəhmət qapısıdır. Ən ümidvar eləyən şeylərdən biridir ki, xətadır elədin, matəm eləmə. Tövbə var. 
+
+Quranda, Burud surəsindədir, səhv eləmirəmsə, uxdud, eşitmisiniz, qutlə əshabül uxdud. Uxdud, quyu deməkdir. Quyunun içində od qalamışdılar. Diri diri möminləri atırdılar ora, yandırırdılar. Allah rouzə oxuyur Quranda onlara. Sanki, rouzə oxuyur, öz dilindən danışır. Qutilə əshabül uxdud. Allah, ölüm olsun, deyir. Ölüm olsun, uxdud əshabına, möminləri diri diri yandıranlara. Onlar od qalamışdılar quyunun içində. Quran danışır bunu, təsvir eləyir. İnsanları diri-diri atırdılar. Va ma naqamu minhum illaa aiyu'minu billaahil azizil Hamid. Günahları nə idi bunların? Ancaq o idi ki, Allaha iman gətirmişdilər. Ondan sonra deyir ki, Innal lazina fatanul mu'minina val mu'minat. O adamlar ki, möminləri diri-diri yandırıb, oturub, ona ləzzətlə baxırdılar, summa lam yatubu falahum azaabu Jahannam. Sonra tövbə etmədilərsə, onlar üçün cəhənnəm əzabı var. İman gətirən adamları diri diri odun içində atıb, oturub, tamaşa eləyən adamlar tövbə etsələr, bağışlanar? Ayədən çıxır ki, bəli. Tövbə etməsələr, onlar üçün cəhənnəm var, tövbə etməsələr. 
+
+Bir hədis də görmüşdüm, deyim sözümü tamamlayayım. Çox maraqlı gəldi mənə, bilmirəm, indiyəcən də görməmişdim. Bəziləri də bəlkə inkar eləyər, qəbul eləməz. Bilmirəm, amma hər halda hədisdir, deyirəm. Deyir, Həzrəti Cəbrail gəlir Həzrəti Peyğəmbərə, Fironun haqqında ayə gətirir ki, Firon əzaba düçər oldu. Deyir, amma görür ki, Peyğəmbər, Həzrəti Cəbrail bir az sevincəkdir. Deyir ki, sənin sevinməyivin nədir səbəbi? Deyir, Firon ki, dənizdə qərq olurdu. Onun qəlb gözü açıldı. Öləndə hamının gözü açılır da. Deyir, əstəğfurullah, tövbə, tövbə. Mən, deyir, tələsdim, dedim ki, sənə tövbə zad yoxdur. Sən bağışlanmazsan. Deyir, o vaxtdan bu vaxta qədər, o öldü, mənim də xəbərim yoxdur onun aqibətindən. Nigaran idim, narahat idim ki, görəsən onu bağışladı, ya mən səhv dedim. İndi ki, sən Peyğəmbərə ayə nazil olur ki, biz Fironu əzaba düçər elədik. İndi arxayın oldum ki, səhv eləməmişəm. Çünki bu səhvimə görə qorxurdum. Bunu Həzrəti Cəbrail Həzrəti Peyğəmbərə deyir. Yəni, Allahın rəhmətinin genişliyinə bax ki, deyir ki, bəlkə... O Firon, bilirsiniz də kimdir? Firon zülmün rəmzidir. Ənə rabbukumul əla, mən sizin rəbbinizəm. Heç kəsin dilindən bu söz nəql olmayıb ki, o deyib. Yəni, özünə ibadət etdirib. Bu bunların hamısında xas xüsusiyyətdir, bu tip insanlara. Onunla bağlı, deyir ki, bəlkə də o məqamda Allah onu da bağışlamışdır, mən bilmirəm. Amma indi məlum oldu ki, yox. Yəni, Allahın rəhmətinin genişliyi o qədərdir ki, deyir diri diri möminləri yandıran adamlar da, əgər tövbə etsələr, onları da bağışlayarıq. İnşallah bu mövzunu da gələn həftə, ümidsizlikdən uzaqlaşdıran amillər haqda gələn həftə, inşallah qismət olsa danışarıq. Allah bu danışılan sözləri hamımızın ürəyində təsirli eləsin, inşallah. 
+
+Əllahummə inni əsəlukə vənəddəuk, bismikəl əzimil əzəm, və əccil əccəllil əkram və bil haqqi Muhammadin və alihi tahirin ya Allah. ya Allahu, ya Allahu, ya Allah,ya Allahu, ya Allahu, ya Allah,ya Allahu, ya Allahu, ya Allah! 
+
+İlahi əllərimizi naumid qaytarma. 
+Amin deyən dilləri lal öldürmə. 
+Bağışlamamış bizi bu dünyadan aparma. 
+Şəri olan hacətlərimizi rəva elə. 
+İzzətin xatirinə izzətimizi əlimizdən alma. 
+Hər kimin ürəyində nə dərdi var, nə hacəti var, İmam Hüseyn əli ilə həll elə. 
+Hər kim hər vasitə ilə, malı ilə, pulu ilə, canı ilə, elmi ilə sənin dinivə xidmət göstərir, dünya və axirətlərini abad elə. 
+İslama, müsəlmanlara, bu xalqa xəyanət eləyənləri zəlil elə. 
+Kimlər ki, bizdən dua xahiş eləyiblər hamısının hacətlərini rəva elə. 
+Ölənlərimizi rəhmət, qalanlarımızı haqqa hidayət elə.
+İşğal altında olan torpaqlarımızı azad eləməkdə bizə kömək elə. 
+Bu torpaqların azadlığı uğrunda canından keçən şəhidlərimizi Kərbəla şəhidləri ilə məşhur elə. 
+İmam Zaman Ağanın zuhurunu tez elə.
