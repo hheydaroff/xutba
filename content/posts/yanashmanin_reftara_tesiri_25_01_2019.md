@@ -63,7 +63,6 @@ Bu, bugünkü söhbətimiz, inşallah, insanın düzgün baxışı və Fatimiyy�
  
 Əllahummə inni əsəlukə vənəddəuk, bismikəl əzimil əzəm, və əccil əccəllil əkram və bi Fatimətə və əbiha və bəliha və bəniha və slrlil mustavda'i fiha ya Allah. ya Allahu, ya Allahu, ya Allah,ya Allahu, ya Allahu, ya Allah,ya Allahu, ya Allahu, ya Allah!
 
-
 İlahi əllərimizi naumid qaytarma. 
 Amin deyən dilləri lal öldürmə. 
 Bağışlamamış bizi bu dünyadan aparma. 
