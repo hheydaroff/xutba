@@ -7,7 +7,7 @@ categories: ['Cume Xutbesi']
 ---
 {{< youtube OnD0SEAjjt0 >}}
 
-Əlhəmdulillahi rəbbil aləmin Vəssəlatu vəssəlamu əla səyyidina və nəbiyyina Əbil-qasimi Mustafa Muhammad. allahummə salli əla muhəmmədin və ali muhəmmədş
+Bismillahirrahmanirrahim. Əlhəmdulillahi rəbbil aləmin Vəssəlatu vəssəlamu əla səyyidina və nəbiyyina Əbil-qasimi Mustafa Muhammad. allahummə salli əla muhəmmədin və ali muhəmmədş
  Və ala Ali Əmir el-Müminin və ala Fatımət el-Zəhra və ala el-Həsəni və el-Husayn və Ali ibn el-Husayn və Muhammad ibn Ali və Cəafar ibn Muhammad və Musa ibn Cəafar və Ali ibn Musa və Muhammad ibn Ali və Ali ibn Muhammad və Əl-Həsəni ibn Ali və Əl-Hüccət el-Qaim el-Məhdi Allahumma salli ala Muhammad və Ali Muhammad Allahumma salli ala cəmiyyəl ənbiyyəi və əl-mürsəliyin və əl-şühədəi və əl-siddiqiyyin Allahumma qıfirli l-mümininə və l-müminat və l-müsliminə və l-müslimat Əl-əhya'i minhum və l-əmvat.
 Usikum və nəfsi bi təqvallah. Sizə və özümə İlahi təqvaya riayət etməyi tövsiyə edirəm [TODO - fix the wording].
  
