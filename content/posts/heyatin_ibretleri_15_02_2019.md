@@ -1,7 +1,7 @@
 ---
 author: haci_shahin
 title: Cümə xütbəsi - Həyatın ibrətləri (15.02.2019)
-date: 2024-02-07
+date: 2024-02-20
 tags: ['Heyatin Ibretleri']
 categories: ['Cume Xutbesi']
 draft: false
