@@ -2,7 +2,7 @@
 author: haci_shahin
 title: Cümə xütbəsi - Qədr gecəsinə hazırlıq (09.06.2017)  
 date: 2024-04-02
-tags: ['Qədr gecəsi', Ramazan ayı]
+tags: ['Qədr gecəsi', 'Ramazan ayı']
 categories: ['Cume Xutbesi']
 draft: false
 ---
